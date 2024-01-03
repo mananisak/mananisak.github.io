@@ -1,1 +1,0 @@
-# mananisak.github.io
